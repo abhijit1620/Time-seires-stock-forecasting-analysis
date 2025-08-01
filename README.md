@@ -68,3 +68,8 @@ Abhijeet Sharma
 BTech CSE-AIML | Lucknow
 abhijitsharma.ab@gmail.com
 
+Chandana R
+MCA| Bengaluru
+pragnar306@gmail.com
+
+
